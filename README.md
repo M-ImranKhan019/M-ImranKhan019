@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @M-ImranKhan019
 - 👀 I’m interested in ...automation testing
-- 🌱 I’m currently learning ...sql
+- 🌱 I’m currently learning ...How to balance life 
 - 📫 How to reach me ...mohamedimran019@gmail.com
   
   
